@@ -3,4 +3,4 @@
 - 💞️ I try to collaborate in doing all the activities
 - 📫 How to contact me: Via WhatsApp
 - 😄 Pronouns: She
-- ⚡ Curiosity: I really like learning things!
+- ⚡ Curiosity: I really like learning things novas!
