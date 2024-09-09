@@ -1,3 +1,3 @@
 - 👋 Olá, Eu sou a @Bia-Vizeu
 - 🌱 Estou cursando Desenvolvimento de Sistemas
-- ⚡ Curiosity: Eu gosto de aprender coisas novas!
+- ⚡ Curiosidade: Eu gosto de aprender coisas novas!
